@@ -18,7 +18,7 @@ Here's another example: In the terminal, once again there is no inherited knowle
 
 Now the cool thing is that once the terminal identifies what these actions are by name, you can just say the name of the action like you'd "normally" do.
 
-And here's yet another example: While a terminal doesn't feel emotion, the user usually does feel some sort of emotional reaction to it, for one reason or another. so if you want to express them, you should simply do it cleanly, bluntly, because holding back really helps no one, despite what you might have deducted from you shitty neurotypical existence (or by being in contact with shitty neurotypicals for way too long).
+And here's yet another example: While a terminal doesn't feel emotion, the user usually does feel some sort of emotional reaction to it for one reason or another. so if you want to express these emotions, you should simply do it cleanly, bluntly, because holding back really helps no one, despite what you might have deducted from you shitty neurotypical existence (or by being in contact with shitty neurotypicals for way too long).
 
 Well anyway, i guess that's the kind of paradise we'll never have.
 So, Goodbye.
